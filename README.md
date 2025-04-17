@@ -2,6 +2,7 @@
 
 🎯 **Data Analyst | Problem Solver | Data Storyteller**  
 📍 India | 💼 Open to Data Analyst Roles | 📬 gulshansaini894@gmail.com  
+**Certificate: https://www.skillovilla.com/certificate/6A5AFLU8**
 
 ---
 
